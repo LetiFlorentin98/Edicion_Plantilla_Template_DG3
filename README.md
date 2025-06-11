@@ -1,1 +1,1 @@
-# Edicion_Plantilla_Template_DG3
+# Edicion Plantilla Template DG3
